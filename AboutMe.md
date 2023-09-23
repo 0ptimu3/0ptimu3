@@ -1,0 +1,3 @@
+hey, in this amazing world my nickname is optimus.
+im intrested in security, AI, Web and ... all of this stuffs.
+i know Web and a bit of security. and i currently learning machine...
